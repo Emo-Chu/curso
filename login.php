@@ -1,0 +1,1 @@
+Perdi aprendi 3 horas de mi vida aprendiendo esta mierda 
